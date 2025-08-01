@@ -1,19 +1,1 @@
 # Hotel-Reservation-System
-
-
-https://exlservice.csod.com//LMS/Eval/CustomCertificate.aspx?qs=^^^HWaGlb9IK1BSSiPlrVb5AOjaxlv93xLskAkDhrN5kBMTrlDsc93MGXPv9BeBgqUXynxonVvuE5Ox79vCufBbAkmVlWWVn/enzLL/RmX6NdBLEYbt3DqZqttpDkNv0sjB
-
-https://exlservice.csod.com/LMS/Eval/CustomCertificate.aspx?qs=%5e%5e%5ezSA%2fjGbtW7jeOviUJM3hr0rDkFRGvD%2bA8xcEAzZM8Ad57%2fdBTHIUKx39TcCdtpoDN7h%2fRPQLFp%2bvT43PsdxZn0gM1XE%2fWfUsqOpJ4vpVggczLywwC7dUYV3YdvxbHzVZ
-
-https://exlservice.csod.com/LMS/Eval/CustomCertificate.aspx?qs=%5e%5e%5eHWaGlb9IK1BSSiPlrVb5AOjaxlv93xLskAkDhrN5kBMTrlDsc93MGXPv9BeBgqUXynxonVvuE5Ox79vCufBbAkmVlWWVn%2fenzLL%2fRmX6NdBLEYbt3DqZqttpDkNv0sjB
-
-https://exlservice.csod.com/LMS/Eval/CustomCertificate.aspx?qs=%5e%5e%5erk1JHaNHghRXbKY5Z6ZB%2fgjcGRk0w1EjULDqbgahcVb98ngZEuLIreIC7MB0zYV4hTUzrxTkVs6MSywR1UNLLc2SyL%2fu9%2f0G5CgvrUNh5Hir%2frHUXUep2Z%2f6uRSN7B7h
-
-https://exlservice.csod.com/LMS/Eval/CustomCertificate.aspx?qs=%5e%5e%5ecY%2btRnPUxUVn5EmfT7voNE7wVqKOMafsCSyEbv4sZgJ3%2bLwFRWcn3UflJHIEPPmM0Lsgzqt9%2bZvGVYsEKFE3PXBeXY9CyFy%2fkKkF22QRSr%2b8gX660ype6Vc1VQkwHmLF
-
-https://exlservice.csod.com/LMS/Eval/CustomCertificate.aspx?qs=%5e%5e%5erjyPe73uCEGlmhMmavQPdU6wtIiYVS1gmXesVFgRuhgzkZz%2bo8ff0T1kq5OIeTuXbkX8XJYVWDUVODoWQBio%2fqLQ1YYn5zfKs4R02XnsP%2bn3ib4VVtzaDDma2Nd9Imt2
-
-https://exlservice.csod.com/LMS/Eval/CustomCertificate.aspx?qs=%5e%5e%5e3U7UOUWW6OxN5uK2v2XgKEj0xpAmb%2fIYIa1UH4KkE3DgVw7qHz8b77sPHX9BZPLebUtsavkiwQEgmYoNgcSPQw4F3J1%2f%2f4vcynNq6biSWyieJG4zkq1g8OTWzTqeaIea
-
-https://exlservice.csod.com/LMS/Eval/CustomCertificate.aspx?
-qs=%5e%5e%5e9sl%2bgQitlWeG8eI0TJXYgxy9i1Dem2YuLrH4voiXeABs9fdbadD45t2dcpm8RARgvM3f4limdQ6B3chnrC1TkqPKiKHwMY%2bOazX6iTji4rAVkuSuP%2bK3JIfzu%2fR3pNQ1
